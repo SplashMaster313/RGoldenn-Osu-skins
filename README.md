@@ -8,3 +8,4 @@
 ![](https://osu.ppy.sh/ss/16471441/397a)
 
 # [Rafis NecroFantasia](https://drive.google.com/file/d/1kKTbf8lRGdqWnmIjzkl7Ubda1vLq6dkV/view?usp=sharing)
+![](https://osu.ppy.sh/ss/16471459/51ad)
