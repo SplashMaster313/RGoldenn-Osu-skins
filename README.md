@@ -1,2 +1,8 @@
 # [404 SkinNotFound v2](https://joofixd.s-ul.eu/Ia93XGt5)
 ![](https://osu.ppy.sh/ss/13488989/a76a)
+
+# [Flyingtuna Selyu](https://drive.google.com/file/d/1bQCTe-Qn0qSuPTUQ6NZdkDCBI-zmlX5-/view?usp=sharing)
+
+# [Flyingtuna Selyu (DT)](https://drive.google.com/file/d/12OwhD9gCCVaYvznI98Ketn_cd_HciadL/view?usp=sharing)
+
+# [Rafis NecroFantasia](https://drive.google.com/file/d/1kKTbf8lRGdqWnmIjzkl7Ubda1vLq6dkV/view?usp=sharing)
