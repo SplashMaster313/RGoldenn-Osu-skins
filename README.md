@@ -4,5 +4,6 @@
 # [Flyingtuna Selyu](https://drive.google.com/file/d/1bQCTe-Qn0qSuPTUQ6NZdkDCBI-zmlX5-/view?usp=sharing)
 
 # [Flyingtuna Selyu (DT)](https://drive.google.com/file/d/12OwhD9gCCVaYvznI98Ketn_cd_HciadL/view?usp=sharing)
+![](https://osu.ppy.sh/ss/16471441/397a)
 
 # [Rafis NecroFantasia](https://drive.google.com/file/d/1kKTbf8lRGdqWnmIjzkl7Ubda1vLq6dkV/view?usp=sharing)
